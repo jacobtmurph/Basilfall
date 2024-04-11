@@ -1,8 +1,8 @@
-## Basilfall was once the champion realm of divine making
+## Basilfall was once the champion realm of divine making!
 ---
 The myriad gods viewed it favourably and their champions often performed many mighty deeds therein. Peoples were united in a golden age that seemingly lasted an eternity, and any evil or corruption, while still present, were kept at bay more than aptly.
 
-## But nothing lasts an eternity in the moral realm
+## But nothing lasts an eternity in the moral realm.
 Despite even the best wishes from the earliest of the divine overseers of mortal planes, entropy still prevailed. Thus, division slowly set in; First among the Elves, who became either prideful and lofty — cutting of their realms from those they deemed of lesser culture, or paranoid and reclusive — escaping to the woodlands and marshes. Then fell the clans of dwarfkind, who became jaded and bitter of those outside of their mountain keeps. Albeit some more tame in the rolling hills of the south remain friendly to outsiders, at arms length.
 
 The reasons for the hiding Gnomes is almost at this point lost to history, but nonetheless they are scant seen in the world at large anymore. But increasing activity from Goblin-kin over the many decades has been prone to dark speculation.
